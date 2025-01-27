@@ -1,0 +1,2 @@
+# Blox-Fruits-Script-Pastebin
+*OP* BLOX FRUITS SCRIPT | PASTEBIN ROBLOX HACK - NO KEY! | (AUTO FARM &amp; AUTO RAID) | TRADE SCAM!
